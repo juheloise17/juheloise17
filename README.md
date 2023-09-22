@@ -1,4 +1,5 @@
-O que é bullyng
+                                                                𝒃𝒖𝒍𝒍𝒚𝒏𝒈
+O que é bullying
 O bullying corresponde à prática de atos de violência física ou psicológica, intencionais e repetidos, cometidos por um ou mais agressores contra uma determinada vítima.
 
 Em outros termos, significa todo tipo de tortura física ou verbal que atormenta um grande número de vítimas no Brasil e no mundo. O termo em inglês "bullying" é derivado da palavra "bully" (tirano, brutal).
